@@ -8,9 +8,9 @@ Most research firms take the lazy route. They profile the top 3 giants (like Sie
 
 **The Solution**: I reviewed the DCS Market report by Next Move Strategy Consulting, and their approach to competition is completely different.
 
-    •	Top 15, Not Top 3: They analyze the strategies of the top 15 players, exposing the full battlefield.
+•	Top 15, Not Top 3: They analyze the strategies of the top 15 players, exposing the full battlefield.
 
-    •	Real Strategy, Not Just Logos: They look at mergers, acquisitions, and R&D shifts. They tell you what the competition is doing, not just who they are.
+•	Real Strategy, Not Just Logos: They look at mergers, acquisitions, and R&D shifts. They tell you what the competition is doing, not just who they are.
     
 If you feel like you are making strategic decisions while wearing a blindfold, this report takes it off. It gives you the full picture so you don’t get blindsided.
 
